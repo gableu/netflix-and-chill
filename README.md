@@ -1,6 +1,4 @@
 [*] if you have questions instagram; yigitaydn.py </br>
-</br>
-
 ![](https://thumbs.gfycat.com/MediumFailingHornedtoad-size_restricted.gif) </br>
 
 Engilish Language. </br>
