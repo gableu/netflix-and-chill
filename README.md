@@ -1,6 +1,5 @@
 [*] if you have questions you can ask on instagram; yigitaydn.py </br>
-***[$] I'm trying to improve myself i'm a 17 years old yet. If i have any fault please, </br> 
-[$] warn me because i just working with my self, no one helps me. but your feedbacks can help me.*** </br>
+***[$] I'm trying to improve myself i'm a 17 years old yet. If i have any fault please, warn me because i just working with my self, no one helps me. but your feedbacks can help.*** </br>
 ![](https://thumbs.gfycat.com/MediumFailingHornedtoad-size_restricted.gif) </br>
 
 Engilish Language. </br>
