@@ -1,4 +1,4 @@
-[x] *** New feature added user agents***. </br>
+[x] *** New feature added user agents.*** </br>
 [!] Proxy does not work with netflix if you have a great proxy list you can send me to try. </br>
 [*] if you have questions you can ask on instagram; ***yigitaydn.py*** </br>
 ![](https://thumbs.gfycat.com/MediumFailingHornedtoad-size_restricted.gif) </br>
