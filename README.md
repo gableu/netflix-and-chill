@@ -1,3 +1,5 @@
+[*] *** New feature added user agents***.
+[!] Proxy does not work with netflix if you have a great proxy list you can send me to try.
 [*] if you have questions you can ask on instagram; ***yigitaydn.py*** </br>
 ![](https://thumbs.gfycat.com/MediumFailingHornedtoad-size_restricted.gif) </br>
 ***[$] I'm trying to improve myself i'm a 17 years old yet. If i have any fault please, warn me because i just working with my self, no one helps me. but your feedbacks can help.*** </br>
